@@ -1,8 +1,8 @@
 # I-am-so-sorry Lord..
-I just wanted to type all this out, I am not strong enough to admit all this anywhere else, if you are reading this, I hope you will have a good life...
+I just wanted to type all this out, I am not strong enough to admit all this anywhere else, if you are reading this, I hope you will have a good life...Please I don't want anyone to be blamed for this, I dont want anyone to suffer for this, please let them live and have a good life. I have written all of this because I want to, not because I want to blame anyone, fuck blaming I am tired of enmity and all this shit
 my name is Zain, I am also known as Zam, while I am typing this, I am in United States.
 I am male, and I am a Hindu. I love Hinduism, and i love the culture and beauty of this religion, i am proud that I had this religion as my religion till the end of my life.
-I love to do swimming and I love to do maths alot. I always had loved them as a kid. I love my mom, I always loved her, she made good food for me, my favourites on every weekends. I failed to understand Islam.
+I love to play badminton and I love to do maths alot. I always had loved them as a kid. I love my mom, I always loved her, she made good food for me, my favourites on every weekends. I failed to understand Islam.
 I hated hijab, I hated the strict sharia law in countries like Iran. Killing a goat in Bakrid mentally broke me down, and I used to be scared by the people beating themselves with chains on muhaaram.
 my 19 year old sister, died by suicide on 4th March because of our family. My mom and dad hated me for adopting Hinduism. 
 It is was fine, I had built self reliance, cleared SAT and got good scholarships. My parents never understood me. I still remember that day when My dad forced me to halal, it still traumatises, I could see that goat bleeding to death and crying in pain. it almost felt like a murder.
